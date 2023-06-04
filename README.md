@@ -1,1 +1,1 @@
-# ckczzj.github.io
+https://ckczzj.github.com
